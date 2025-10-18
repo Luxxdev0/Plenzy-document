@@ -1,9 +1,10 @@
-# will be updated When more Proof!
-So As yall know Saika Is Another project Of the Flooper Owners They like to Bot there servers And Treat Devs bad
+# More Updates Soon!!
+As some of you may already know, Saika is another project by the same owners of Flooper. Unfortunately, they have a history of botting their servers and treating their developers..
 
-And sadly i have no proof bec i never saw my self doing this but Plenzy Was Skidding Beyonds open Source Launcher When flopper was a thing.
+While I don’t have direct proof it’s important to mention that Plenzy was caught skidding Beyond’s open-source launcher when Flooper was still active.
 
-Please Do not Join these servers Or Anything The only good Dev that dont skid there Is Sev.
+I strongly advise against joining these servers or supporting their projects. The only developer who has consistently avoided skidding and unethical practices is Sev.
 
-i was once a dev there but they would non stop Spam DM me everyday Asking if there Stuff is done so i quit ogfn at the time Here is some screenshots of this proof
+I was once a developer on their team, but they keeped on spamming my DMs daily asking if my work was done—eventually This kind of toxic environment is why I walked away from OGFN at the time. But Please Do not Join servers Like this As they are skids And more Thx For Reading this
 
+# :p
