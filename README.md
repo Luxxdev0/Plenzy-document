@@ -1,2 +1,6 @@
-# Saika-document
-Saika-document On How they like to bot servers and treat there Devs bad?
+# will be updated When more Proof!
+So As yall know Saika Is Another project Of the Flooper Owners They like to Bot there servers And Treat Devs bad
+
+And sadly i have no proof bec i never saw my self doing this but Plenzy Was Skidding Beyonds open Source Launcher When flopper was a thing.
+
+# Please Do not Join these servers Or Anything The only good Dev that dont skid there Is Sev.
